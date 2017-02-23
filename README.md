@@ -1,1 +1,0 @@
-a callaborative, intimate, & fun chat app
